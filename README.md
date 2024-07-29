@@ -10,14 +10,12 @@
 - Tokyo Ghoul (only seasons 1-2)
 ![image](https://th.bing.com/th/id/R.f5c8b70a629be24f03523ed15094db47?rik=%2bXOT%2fJN9a9uvSA&riu=http%3a%2f%2fi.ytimg.com%2fvi%2fa2KX7_Mbbn4%2fmaxresdefault.jpg&ehk=yiAnxTOwZWKrPkd4Q5QBVOKNFW44THXnQ8UqBe8CxFU%3d&risl=&pid=ImgRaw&r=0)
 
-
 - JoJo Bizarre Adventure
 ![image](https://th.bing.com/th/id/OIP.vafVC8LeUmjwb-LBAImHCgHaEb?w=311&h=186&c=7&r=0&o=5&dpr=1.5&pid=1.7)
+
 ## Kdramas
 - Bloodhounds 
 ![image](https://img.jagrantv.com/article/rc1043049/1686743424-bloodhound.jpg)
-
-
 
 - Moving 
 ![image](https://orangemagazine.ph/wp-content/uploads/2023/12/Moving.jpg)
