@@ -12,8 +12,7 @@
 
 
 - JoJo Bizarre Adventure
-![image](https://i2.wp.com/thefanboyseo.com/wp-content/uploads/2017/09/JoJos-Bizarre-Adventure-Stardust-Crusaders.jpg)
-
+![image](https://th.bing.com/th/id/OIP._dMS2jpAbCQS3JlDF7UnFQHaEB?w=284&h=180&c=7&r=0&o=5&dpr=1.5&pid=1.7)
 
 
 ## Kdramas
